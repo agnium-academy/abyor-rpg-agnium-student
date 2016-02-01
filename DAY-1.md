@@ -5,5 +5,5 @@ Spaceflights cannot be stopped. This is not the work of any one man or even a gr
 
 To be the first to enter the cosmos, to engage, single-handed, in an unprecedented duel with nature—could one dream of anything more?
 
-Science has not yet mastered prophecy. We predict too much for the next year and yet far too little for the next 10.
+Science has not yet mastered prophecy. We predict too much for the next year and yet far too little for the next 100 years.
 
